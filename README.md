@@ -1,1 +1,0 @@
-https://janvigalani.github.io
